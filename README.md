@@ -1,2 +1,2 @@
-# A6_Kelompok1
+# A6-Kelompok1
 Yang Semangat Dong, Yang Semangat Dong!!
